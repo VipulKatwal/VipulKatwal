@@ -12,7 +12,7 @@
 
 - 👨‍💻 All of my projects are available at <a href="https://github.com/VipulKatwal"  target="blank"><img align="center"><img align="Center" src="https://img.icons8.com/plasticine/40/000000/github.png"/></a>
 
-- 📫 How to reach me **vipulkatwal17@gmail.com**
+- 📫 How to reach me: **through social handling which are listed below 😊**
 
 - ⚡ Fun fact **I think I am Lazy.**
 
