@@ -8,7 +8,7 @@
 
 - 😄 Pronouns: He/His
 
-- 🌱 I’m currently learning **Android Development and more about Data Structures.**
+- 🌱 I’m currently learning **about Android Development and Data Structures.**
 
 - 👨‍💻 All of my projects are available at <a href="https://github.com/VipulKatwal"  target="blank"><img align="center"><img align="Center" src="https://img.icons8.com/plasticine/40/000000/github.png"/></a>
 
