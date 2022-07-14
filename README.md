@@ -14,7 +14,7 @@
 
 - 📫 How to reach me: **through social handling which are listed below 😊**
 
-- ⚡ Fun fact: **In my spare time, I love drawing pencil sketches.**
+- ⚡ Fun fact: **I love to drawing pencil sketches.**
 
 <h2 align="left">Connect with me:</h2>
 <p align="left">
